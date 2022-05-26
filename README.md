@@ -1,2 +1,0 @@
-# Praktika
-ChepashevGG15
